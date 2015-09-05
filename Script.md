@@ -1,6 +1,6 @@
 # Operation-Dreamworld
 
-#{*0:00-0:28 Frank and I sitting in the room looking sad (During the part right after that when it says home but it starts to glitch like home home home that is the part it zooms into his head)
+*0:00-0:28 Frank and I sitting in the room looking sad (During the part right after that when it says home but it starts to glitch like home home home that is the part it zooms into his head)
 
 *0:29-0:49 All of us mining in the diamond tower gearing up enchanting etc.
 
@@ -28,4 +28,4 @@
 
 The rest of the animation is up to what you sink it up to 
 
-All that is left is the camera zooms out of franks head and we are still sitting there then brandon and you tap on our shoulders and all 5 of us walk away and disappear}
+All that is left is the camera zooms out of franks head and we are still sitting there then brandon and you tap on our shoulders and all 5 of us walk away and disappear
